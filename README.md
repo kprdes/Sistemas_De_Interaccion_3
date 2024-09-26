@@ -5,7 +5,7 @@
 
 ## Link to Youtube video
 
-- Link:
+- Link: https://youtu.be/jtlr4QS2f0A
 
 ## Project Overview
 
